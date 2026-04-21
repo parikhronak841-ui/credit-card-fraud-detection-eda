@@ -1,1 +1,0 @@
-# Ronak-Parikh
